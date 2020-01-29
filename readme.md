@@ -46,4 +46,5 @@ In einer Pfanne ohne Fett auf großer Hitze von beiden Seiten ausbacken. Wenn Bl
 ### Zubereitung
 150 ml Wasser, Hefe und Zucker miteinander verrühren. Mehl, Salz und Öl mit der aufgelösten Hefe in einer Schüssel zu einem glatten Teig kneten und anschließend ca. eine Stunde abgedeckt warm gehen lassen.
 Den Teig danach auf ein mit Backpapier belegtes Blech geben und nochmals mit etwas Mehr bestäuben.
-Ofen mit Ober-/Unterhitze auf 240-260° vorheizen, 10 Minuten backen, bei 200° 20 Minuten backen
+Ofen mit Ober-/Unterhitze auf 240-260° vorheizen, 10 Minuten backen, anschließend bei 200° 20 Minuten backen.
+Eine kleine Schale mit Wasser im Ofen macht das Brot knuspriger.
