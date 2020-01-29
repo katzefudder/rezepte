@@ -21,7 +21,7 @@ Pizza nach Wunsch belegen und in einem vorgeheizten Ofen mit Ober-/Unterhitze au
 ## Naan
 
 ### Zutaten
-* 150 g Weizenmehl
+* 150 g Weizenmehl 405
 * 2 EL Naturyoghurt
 * 50 ml Milch
 * 1/2 TL Backpulver
