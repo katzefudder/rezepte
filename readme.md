@@ -3,16 +3,17 @@
 ## Pizza
 
 ### Zutaten
-* 300 g Weizenmehl 405
-* 120 ml warmes Wasser (handwarm)
+* 270 g Weizenmehl Typ 405 oder 00
+* 30 g Hartzweizengries - Semola di grano duro
+* 150 ml warmes Wasser (handwarm)
+* 4-8 g Olivenöl
 * 4-6 g frische Hefe
 * 8 g Salz
 * 4 g Zucker
-* 4-8 g Olivenöl
 
 ### Zubereitung
 Die Menge ergibt etwa drei normal große Pizzen, welche je nach Lust und Laune belegt werden können.
-120 ml Wasser, Hefe und Zucker miteinander verrühren. Mehl, Salz und Öl mit der aufgelösten Hefe in einer Schüssel zu einem glatten Teig kneten und anschließend ca. eine Stunde abgedeckt warm gehen lassen.
+150 ml Wasser, Hefe und Zucker miteinander verrühren. Mehl, Salz und Öl mit der aufgelösten Hefe in einer Schüssel zu einem glatten Teig kneten und anschließend ca. eine Stunde abgedeckt warm gehen lassen.
 Den Teig in drei gleich große Teile aufteilen und möglichst dünn ausrollen.
 
 Pizza nach Wunsch belegen und in einem vorgeheizten Ofen mit Ober-/Unterhitze auf 240-260° auf unterstem Einschub für ca. 20 Minuten backen.
