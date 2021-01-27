@@ -2,6 +2,8 @@
 
 ## Pizza
 
+![pizza](images/pizza.jpg)
+
 ### Zutaten
 * 270 g Weizenmehl Typ 405 oder 00
 * 30 g Hartzweizengries - Semola di grano duro
