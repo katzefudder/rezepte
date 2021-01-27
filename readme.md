@@ -20,7 +20,7 @@ Den Teig in drei gleich große Teile aufteilen und möglichst dünn ausrollen.
 
 Pizza nach Wunsch belegen und in einem vorgeheizten Ofen mit Ober-/Unterhitze auf 240-260° auf unterstem Einschub für ca. 20 Minuten backen.
 
-## Nudelteig ohne Ei (für Tortellinie o.ä.)
+## Nudelteig ohne Ei (für Tortellini o.ä.)
 
 ![Nudeln](images/tortellini.jpg)
 
