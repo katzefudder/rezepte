@@ -20,6 +20,20 @@ Den Teig in drei gleich große Teile aufteilen und möglichst dünn ausrollen.
 
 Pizza nach Wunsch belegen und in einem vorgeheizten Ofen mit Ober-/Unterhitze auf 240-260° auf unterstem Einschub für ca. 20 Minuten backen.
 
+## Nudelteig ohne Ei (für Tortellinie o.ä.)
+
+![Nudeln](images/tortellini.jpg)
+
+### Zutaten
+* 150g Mehr Typ 405 oder 00
+* 150g Hartzweizengries - Semola di grano duro
+* 150g kaltes Wasser
+* 4-8g Salz (oder darauf verzichten und lieber beim Kochen etwas mehr)
+
+### Zubereitung
+Mehl, Hartweizengries und Wasser miteinander vermengen und gut verkneten.
+Den Teig für mindestens ein paar Minuten (30 oder mehr) in Frischaltefolie im Kühlschrank ruhen lassen.
+Zum Ausrollen des Teigs ist eine "Nudelmaschine" beinah unerlässlich.
 
 ## Naan
 
