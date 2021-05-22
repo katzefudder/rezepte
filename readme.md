@@ -37,7 +37,7 @@ Zum Ausrollen des Teigs ist eine "Nudelmaschine" beinah unerlässlich.
 
 ## Tandoori Chicken (ohne Tandoori-Ofen)
 
-![Spiesse](images/spiesse.jpg)
+![Spiesse](images/spiess.jpg)
 
 ### Zutaten
 
