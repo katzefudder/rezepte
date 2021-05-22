@@ -25,7 +25,7 @@ Pizza nach Wunsch belegen und in einem vorgeheizten Ofen mit Ober-/Unterhitze au
 ![Nudeln](images/tortellini.jpg)
 
 ### Zutaten
-* 150g Mehr Typ 405 oder 00
+* 150g Mehl Typ 405 oder 00
 * 150g Hartzweizengries - Semola di grano duro
 * 150g kaltes Wasser
 * 4-8g Salz (oder darauf verzichten und lieber beim Kochen etwas mehr)
