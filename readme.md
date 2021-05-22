@@ -37,6 +37,8 @@ Zum Ausrollen des Teigs ist eine "Nudelmaschine" beinah unerlässlich.
 
 ## Tandoori Chicken (ohne Tandoori-Ofen)
 
+![Spiesse](images/spiesse.jpg)
+
 ### Zutaten
 
 * 500-600g Hühnebrust
@@ -53,6 +55,8 @@ Das Hühnchen säubern und in mundgerechte Stücke zerteilen und in der Marinade
 Die Hähnchenstücke auf Spieße aufziehen und möglichst heiß auf einem Grill (Gasgrill) mit geschlossenem Deckel erhitzen. Die Marinade sollte dabei nicht verbrennen - was sich nicht in Gänze verhindern lässt. Kleine, verbrannte Teile der Fleischstücke lassen sich meist nicht verhindern.
 
 Als Beilage passt Reis sowie Fladenbrot, oder ein einfaches Curry mit Tomaten und Kichererbsen.
+
+Tip: Gewürze leicht anrösten, dann mit einem Mörser fein zerstoßen.
 
 ## Naan
 
