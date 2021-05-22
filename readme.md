@@ -41,7 +41,7 @@ Zum Ausrollen des Teigs ist eine "Nudelmaschine" beinah unerlässlich.
 
 ### Zutaten
 
-* 500-600g Hühnebrust
+* 500-600g Hühnerbrust
 * ca. 250g griechischer Yoghurt
 * 1 Zehe Knoblauch, gepresst
 * Curry-Mischung (Kreuzkümmel, Koriander, Zimt, Kardamom, Bockshornklee, Chili, gemahlener Ingwer, ..., etc.)
