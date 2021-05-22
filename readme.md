@@ -35,6 +35,25 @@ Mehl, Hartweizengries und Wasser miteinander vermengen und gut verkneten.
 Den Teig für mindestens ein paar Minuten (30 oder mehr) in Frischaltefolie im Kühlschrank ruhen lassen.
 Zum Ausrollen des Teigs ist eine "Nudelmaschine" beinah unerlässlich.
 
+## Tandoori Chicken (ohne Tandoori-Ofen)
+
+### Zutaten
+
+* 500-600g Hühnebrust
+* ca. 250g griechischer Yoghurt
+* 1 Zehe Knoblauch, gepresst
+* Curry-Mischung (Kreuzkümmel, Koriander, Zimt, Kardamom, Bockshornklee, Chili, gemahlener Ingwer, ..., etc.)
+* Salz und Pfeffer zum Abschmecken
+* den Saft einer Limette/Zitrone
+* etwas neutrales Speiseöl (muss nicht)
+* etwas Speisestärke (muss nicht)
+
+Yoghurt und Gewürze mit dem Zitronensaft vermischen und abschmecken.
+Das Hühnchen säubern und in mundgerechte Stücke zerteilen und in der Marinade mehrere Stunden ruhen lassen.
+Die Hähnchenstücke auf Spieße aufziehen und möglichst heiß auf einem Grill (Gasgrill) mit geschlossenem Deckel erhitzen. Die Marinade sollte dabei nicht verbrennen - was sich nicht in Gänze verhindern lässt. Kleine, verbrannte Teile der Fleischstücke lassen sich meist nicht verhindern.
+
+Als Beilage passt Reis sowie Fladenbrot, oder ein einfaches Curry mit Tomaten und Kichererbsen.
+
 ## Naan
 
 ### Zutaten
