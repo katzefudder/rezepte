@@ -5,22 +5,22 @@
 ### Zutaten
 
 *Für den Teig:* 
-1Kg mehlig kochende Kartoffeln
-300g Mehl
-40g Hartweizengries - Semola di grano duro
-2 Eigelb
-Muskat
-Salz
+* 1Kg mehlig kochende Kartoffeln
+* 300g Mehl
+* 40g Hartweizengries - Semola di grano duro
+* 2 Eigelb
+* Muskat
+* Salz
 
 *Für die Füllung*
-500g gemischtes Hackfleisch (halb halb)
-1 Zwiebel
-2 Knoblauchzehen
-etwas Öl und/oder Butterschmalz
-Majoran
-Salz
-Pfeffer
-frische Petersilie
+* 500g gemischtes Hackfleisch (halb halb)
+* 1 Zwiebel
+* 2 Knoblauchzehen
+* etwas Öl und/oder Butterschmalz
+* Majoran
+* Salz
+* Pfeffer
+* frische Petersilie
 
 ### Zubereitung
 Die Zwiebel und die Knoblauchzehen schälen, im Öl und/oder Butterschmalz glasig andünsten. Das Hackfleisch zugeben und langsam anbraten.
