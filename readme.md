@@ -1,12 +1,48 @@
 # Rezeptsammlung
 
+## Hascheeknödel (Hackfleischknödel)
+
+### Zutaten
+
+*Für den Teig:* 
+1Kg mehlig kochende Kartoffeln
+300g Mehl
+40g Hartweizengries - Semola di grano duro
+2 Eigelb
+Muskat
+Salz
+
+*Für die Füllung*
+500g gemischtes Hackfleisch (halb halb)
+1 Zwiebel
+2 Knoblauchzehen
+etwas Öl und/oder Butterschmalz
+Majoran
+Salz
+Pfeffer
+frische Petersilie
+
+### Zubereitung
+Die Zwiebel und die Knoblauchzehen schälen, im Öl und/oder Butterschmalz glasig andünsten. Das Hackfleisch zugeben und langsam anbraten.
+Mit Salz, Pfeffer und Majoran würzen. Wenn das Hackfleisch gar und krümelig, aber nicht zu trocken ist, die Petersilie fein gehackt zugeben und die Pfanne von der Platte nehmen und abkühlen lassen.
+
+Die Kartoffeln in reichlich Wasser kochen. Wenn gar, die Kartoffel unter kaltem Wasser abschrecken und schälen. Anschließend die noch warmen Kartoffeln pressen oder stampfen, bis eine gleichmäßige, feine Masse entstanden ist. Mit Salz (reichlich) und Muskat würzen, die zwei Eigelb zugeben und mit Mehl und dem Hartweizengries zu einem Teig verkneten.
+Den Teig etwas ruhen lassen und zu einer Rolle formen.
+![Kartoffelteig](images/kartoffelteig.jpg)
+Nun einzelne Portionen (walnussgroß) abstechen, zu einer Kugel formen und platt ausdrücken oder walzen und in der hohlen Hand halten, dann in die enstandene Mulde im Teig eine kleine Menge Hackfleisch plazieren und den Teig herum falten, so dass die Füllung umschlossen ist. 
+![Füllung](images/hascheeknoedel.jpg)
+Die Knödel anschließend mit etwas Mehl in der Hand zu einer Kugel formen.
+![fertige Knödel](images/hascheeknoedel2.jpg)
+Die Knödel anschließend in leicht siedendem Wasser (darf nicht kochen!) ca. 20 Minuten garen lassen. Die Knödel sind gar, wenn sie an die Oberfläche steigen.
+
+
 ## Pizza
 
 ![pizza](images/pizza.jpg)
 
 ### Zutaten
 * 270 g Weizenmehl Typ 405 oder 00
-* 30 g Hartzweizengries - Semola di grano duro
+* 30 g Hartweizengries - Semola di grano duro
 * 150 ml warmes Wasser (handwarm)
 * 4-8 g Olivenöl
 * 4-6 g frische Hefe
@@ -26,7 +62,7 @@ Pizza nach Wunsch belegen und in einem vorgeheizten Ofen mit Ober-/Unterhitze au
 
 ### Zutaten
 * 150g Mehl Typ 405 oder 00
-* 150g Hartzweizengries - Semola di grano duro
+* 150g Hartweizengries - Semola di grano duro
 * 150g kaltes Wasser
 * 4-8g Salz (oder darauf verzichten und lieber beim Kochen etwas mehr)
 
