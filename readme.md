@@ -124,3 +124,27 @@ In einer Pfanne ohne Fett auf großer Hitze von beiden Seiten ausbacken. Wenn Bl
 Den Teig danach auf ein mit Backpapier belegtes Blech geben und nochmals mit etwas Mehr bestäuben.
 Ofen mit Ober-/Unterhitze auf 240-260° vorheizen, 10 Minuten backen, anschließend bei 200° 20 Minuten backen.
 Eine kleine Schale mit Wasser im Ofen macht das Brot knuspriger.
+
+
+## Mediterraner Tomate-Gurke-Salat mit roten Zwiebeln
+
+### Zutaten für vier Personen
+* eine Salatgurke
+* vier reife, aber möglichst feste Tomaten
+* zwei kleine rote Zwiebeln
+* den Saft einer Zitrone (ca. 30-50ml)
+* ebenso viel Olivenöl
+* etwas Honig
+* Salz
+* ein Bund Petersilie
+* Majoran
+* Thymian
+
+Die Salatgurke schälen und halbieren, mit einem Löffel vom Kerngehäuse befreien und in ca 1-2 cm lange sowie breite Würfel schneiden.
+Die Gurkenwürfel in einer Schüssel mit etwas Salz bestreuen und vermengen – dies zieht Wasser aus der Gurke.
+Die Tomaten halbieren, vom Kerngehäuse befreien und in kleine Stücke schneiden. Ebenso in einer Schüssel mit etwas Salz bestreuen, so dass auch hier das Wasser aus den Tomaten gesogen wird.
+Die beiden Zwiebeln in feine Ringe schneiden und in einer Schüssel mit etwas Salz bestreuen, vermengen und so ca. 20 Minuten stehen lassen.
+
+Aus dem Saft der Zitrone und der gleichen Menge Olivenöl, dem Honig, Majoran und Thymian ein Dressing mischen.
+Die Petersilie waschnen und Hacken.
+Tomaten, Gurken, Zwiebeln und Petersilie vermischen und das Dressing darüber geben.
