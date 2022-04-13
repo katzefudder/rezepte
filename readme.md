@@ -50,7 +50,7 @@ Die Knödel anschließend in leicht siedendem Wasser (darf nicht kochen!) ca. 20
 * 4 g Zucker
 
 ### Zubereitung
-Die Menge ergibt etwa drei normal große Pizzen, welche je nach Lust und Laune belegt werden können.
+Die Menge ergibt etwa zwei normal große Pizzen, welche je nach Lust und Laune belegt werden können.
 150 ml Wasser, Hefe und Zucker miteinander verrühren. Mehl, Salz und Öl mit der aufgelösten Hefe in einer Schüssel zu einem glatten Teig kneten und anschließend ca. eine Stunde abgedeckt warm gehen lassen.
 Den Teig in drei gleich große Teile aufteilen und möglichst dünn ausrollen.
 
