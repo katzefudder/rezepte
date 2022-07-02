@@ -43,9 +43,9 @@ Die Knödel anschließend in leicht siedendem Wasser (darf nicht kochen!) ca. 20
 ### Zutaten
 * 270 g Weizenmehl Typ 405 oder 00
 * 30 g Hartweizengries - Semola di grano duro
-* 150 ml warmes Wasser (handwarm)
+* 160 ml warmes Wasser (handwarm)
 * 4-8 g Olivenöl
-* 4-6 g frische Hefe
+* 3-4 g frische Hefe
 * 8 g Salz
 * 4 g Zucker
 
