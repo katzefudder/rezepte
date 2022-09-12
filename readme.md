@@ -1,5 +1,74 @@
 # Rezeptsammlung
 
+## Chicken Korma (mit Hühnchen oder Kartoffeln)
+
+*Nicht vegetarische Variante*
+
+* 500g Hühnchenbrust
+* 3 Esslöffel Joghurt
+* 1 Esslöffel Ingwer-Knoblauch-Paste
+* 1 Teelöffel Salz
+* 1 Teelöffel Garam Masala
+* 1 Teelöffel Chilipulver
+
+Hühnchen (in mundgerechten Stücken) mit drei Esslöffeln Joghurt, einem Esslöffel Ingwer-Knoblauch-Paste, ca. einem viertel Teelöffel Kurkuma, einem halben Teelöffel Salz, einem Teelöffel Chilipulver und einem Teelöffel Garam Masala in einer Schüssel gut vermischen. Die Mischung anschließend abdecken und mindestens eine Stunde im Kühlschrank zwischenlagern.
+
+*Vegetarische Variante mit Kartoffeln*
+
+6-8 mittelgroße Kartoffeln (festkochend) schälen und in Salzwasser vorkochen.
+Wenn gar, im noch warmen Top zum Ausdampfen zur Seite stellen.
+
+*Für die Soße*
+* 1 1/2 Esslöffel Öl (oder auch Ghee, oder Butterschmalz)
+* 2 mittelgroße Zwiebeln (feine Scheiben geschnitten)
+* 2 Kapseln Kardamom
+* 6 Mandeln (oder auch Cashewkerne)
+* 6 Cashewkerne
+* 80-100g griechischer Joghurt (10% Fett)
+
+Das Öl in einer Pfanne erhitzen, die Kardamom-Kapseln mit den Zwiebeln hinzugeben.
+Die Mischung unter moderater Hitze so lange anbraten bis die Zwiebeln eine gold-braune Farbe angenommen haben. Die Mandeln und die Cashewkerne hinzugeben.
+Die Mischung aus der Pfanne nehmen und abkühlen lassen.
+Wenn völlig abgekühlt, die Zwiebel-Nuss-Mischung in einem Mixer mit dem Joghurt zu einer homogenen Masse verarbeiten. Diese Masse anschließend kühl für später aufbewahren.
+
+### Zubereitung
+
+Einen Esslöffel Öl in die Pfanne geben und erhitzen.
+Die Gewürze entfalten ihren Duft sowie Geschmack beim Erzhitzen erst richtig, daher:
+* 1 Lorbeerblatt
+* eine kleine Menge Zimt
+* 2-3 Nelken
+* 2-3 Kapseln Kardamom
+Für ca. eine Minute im heißen Öl braten.
+
+Frische Chili und das Fleisch (bzw. die Kartoffeln) hinzugeben. Das Fleisch sollte 5-6 Minuten im heißen Öl braten. Danach die Soße (Joghurt-Zwiebel-Nuss-Mischung) mit ca. 100 - 150ml Wasser hinzugeben und gut vermischen.
+Dann salzen und sowohl gemahlenen Koriander sowie Garam Masala hinzugeben.
+Alles gut miteinander vermischen und die Pfanne anschließend auf höchster Stufe erhitzen und das Fleisch mitsamt der Soße zum Kochen bringen. Die Hitze anschließend reduzieren und auf kleiner Flamme simmern lassen. 
+Sollte die Soße zu dickflüssig werden, einfach die Masse mit etwas heißem Wasser verdünnen.
+Nach gut 20 Minuten sollte das Hühnchen zart und die Soße schön sämig sein.
+
+Dazu passt: Pilau Rice
+
+## Pilau Rice
+
+Für zwei Personen:
+
+200g Basmati Reis
+300-350ml Wasser
+5g Kreuzkümmel
+5g Koriander
+Etwas Kurkuma
+2-4 Gramm Salz
+10g Ghee oder Butterschmalz, zur Not einen Esslöffel Öl
+
+### Zubereitung
+Kreuzkümmel und Koriander im Mörser zu einem möglichst feinen Pulver verarbeiten und mit dem Kurkuma vermischen.
+
+Den Reis mehrfach mit Wasser spülen, so dass die Stärke ausgewaschen wird. Den Reis anschließend abtropfen.
+In einem ausreichend großen Topf das Ghee oder Butterschmalz erhitzen und anschließend die Gewürzmischung hinzugeben und unter Rühren etwas anrösten.
+Nach etwa 40 Sekunden den abgetropften Reis hinzugeben, mit den Gewürzen vermischen, kurz anbraten und nach weiteren 30 Sekunden das Wasser sowie das Salz hinzugeben und unter gelegentlichem Rühren das Wasser möglichst komplett verkochen lassen.
+Ist das Wasser verkocht, den Topf von der Platte nehmen und mit geschlossenem Deckel für ca. 20 Minuten an der Seite ruhen lassen.
+
 ## Hascheeknödel (Hackfleischknödel)
 
 ### Zutaten
