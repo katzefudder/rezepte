@@ -53,13 +53,13 @@ Dazu passt: Pilau Rice
 
 Für zwei Personen:
 
-200g Basmati Reis
-300-350ml Wasser
-5g Kreuzkümmel
-5g Koriander
-Etwas Kurkuma
-2-4 Gramm Salz
-10g Ghee oder Butterschmalz, zur Not einen Esslöffel Öl
+* 200g Basmati Reis
+* 300-350ml Wasser
+* 5g Kreuzkümmel
+* 5g Koriander
+* Etwas Kurkuma
+* 2-4 Gramm Salz
+* 10g Ghee oder Butterschmalz, zur Not einen Esslöffel Öl
 
 ### Zubereitung
 Kreuzkümmel und Koriander im Mörser zu einem möglichst feinen Pulver verarbeiten und mit dem Kurkuma vermischen.
