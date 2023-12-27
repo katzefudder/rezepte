@@ -105,6 +105,26 @@ Die Knödel anschließend mit etwas Mehl in der Hand zu einer Kugel formen.
 Die Knödel anschließend in leicht siedendem Wasser (darf nicht kochen!) ca. 20 Minuten garen lassen. Die Knödel sind gar, wenn sie an die Oberfläche steigen.
 
 
+## Semmelknödel
+
+![fertige Knödel](images/semmelknoedel1.jpg)
+
+* 500g Brötchenwürfel
+* 500ml Milch
+* 4 Eier
+* eine große Zwiebel
+* Petersilie 
+* 50g Mehl
+* etwas Butterschmalz
+* etwas Muskat
+* Salz und Pfeffer zum Abschmecken 
+
+Die Brötchenwürfel in etwas Butterschmalz anrösten.
+Die Zwiebel grob hacken und in Butterschmalz anschwitzen. Die Milch angießen und leicht aufkochen. Mit Salz, Pfeffer und Muskat abschmecken und mitsamt der verquirlten Eier über die Brötchenwürfel geben. Die Masse mit einem Kochlöffel gut durchmengen und für gut 20 Minuten offen quellen lassen.
+Anschließend das Mehl unterheben und gut durchmengen. Darauf mit den Händen die Knödel formen und in ca. 90° warmen Salzwasser für ca. 15min ziehen lassen.
+
+![aufgeschnittener Knödel](images/semmelknoedel2.jpg)
+
 ## Pizza
 
 ![pizza](images/pizza.jpg)
