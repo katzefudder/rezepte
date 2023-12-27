@@ -121,7 +121,7 @@ Die Knödel anschließend in leicht siedendem Wasser (darf nicht kochen!) ca. 20
 
 Die Brötchenwürfel in etwas Butterschmalz anrösten.
 Die Zwiebel grob hacken und in Butterschmalz anschwitzen. Die Milch angießen und leicht aufkochen. Mit Salz, Pfeffer und Muskat abschmecken und mitsamt der verquirlten Eier über die Brötchenwürfel geben. Die Masse mit einem Kochlöffel gut durchmengen und für gut 20 Minuten offen quellen lassen.
-Anschließend das Mehl unterheben und gut durchmengen. Darauf mit den Händen die Knödel formen und in ca. 90° warmen Salzwasser für ca. 15min ziehen lassen.
+Anschließend das Mehl unterheben und gut durchmengen. Darauf mit den Händen die Knödel formen und in ca. 90° warmem Salzwasser für ca. 15min ziehen lassen.
 
 ![aufgeschnittener Knödel](images/semmelknoedel_2.jpg)
 
