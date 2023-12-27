@@ -140,8 +140,8 @@ Anschließend das Mehl unterheben und gut durchmengen. Darauf mit den Händen di
 
 ### Zubereitung
 Die Menge ergibt etwa zwei normal große Pizzen, welche je nach Lust und Laune belegt werden können.
-150 ml Wasser, Hefe und Zucker miteinander verrühren. Mehl, Salz und Öl mit der aufgelösten Hefe in einer Schüssel zu einem glatten Teig kneten und anschließend ca. eine Stunde abgedeckt warm gehen lassen.
-Den Teig in drei gleich große Teile aufteilen und möglichst dünn ausrollen.
+Wasser, Hefe und Zucker miteinander verrühren. Mehl, Salz und Öl mit der aufgelösten Hefe in einer Schüssel zu einem glatten Teig kneten und anschließend mindestens eine Stunde, besser mehrere Stunden, abgedeckt gehen lassen.
+Den Teig in zwei gleich große Teile aufteilen und möglichst dünn ausrollen.
 
 Pizza nach Wunsch belegen und in einem vorgeheizten Ofen mit Ober-/Unterhitze auf 240-260° auf unterstem Einschub für ca. 20 Minuten backen.
 
